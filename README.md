@@ -18,4 +18,4 @@ What in ther?
 
 ![270803122-72f05dd5-c5c5-429e-bfd9-dd9fba59e91c](https://github.com/Yuroxzz/Bozo-PredictorV3/assets/126328806/e4d6432d-53fe-41b7-8f02-c7219848f746)
 
- ![Uploading 270803203-4407355c-89f1-4326-b8fe-4a0ef00b60c7.png…]()
+https://media.discordapp.net/attachments/1195546879786766376/1195547233190416515/image.png?ex=65b46320&is=65a1ee20&hm=e022ce09be588bc5a92e86f9835371021cd88113c494a035cfefaa541e3a9969&=&format=webp&quality=lossless&width=1260&height=590
