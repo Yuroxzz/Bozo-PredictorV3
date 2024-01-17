@@ -1,6 +1,6 @@
-# Bozo-PredictorV3
+# Veii-PredictorV3
 # for educational purposes only
-Bloxflip-Bozo
+Bloxflip-Veii
 
 # Got Leak this preditor
 Downalod?
